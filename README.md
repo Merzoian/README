@@ -3,7 +3,7 @@
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Valentina%20Marogi-blue?style=flat&logo=linkedin)](https://www.linkedin.com/in/ValentinaMarogi)  
 📧 [valentina.petros96@gmail.com](mailto:valentina.petros96@gmail.com)
 • 📱 +1 (208) 346-2867  
-🌐Vist My website Protfolio to see my wrok at valentina-engineer@online.com
+🌐[Vist My website Protfolio to see my wrok at valentina-engineer@online.com](https://www.valentina-engineer@online.com)
 ---
 
 ## 📚 About Me
